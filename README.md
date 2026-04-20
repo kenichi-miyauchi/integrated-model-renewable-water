@@ -25,3 +25,7 @@ An integrated model using renewable energy to improve water access, reduce child
 後日、英語版(English version)を追加予定です。
 
 ## 本PDFは 2026年4月22日(Earth Day)に公開された初版です。
+
+## Contact
+For inquiries:
+miyauchi.kenichi [at] outlook [dot] com
